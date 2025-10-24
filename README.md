@@ -1,1 +1,1 @@
-# Sistema-Gesti-n-Comercial-Pollos-Nymo-s
+# Sistema-Gestion-Comercial-Pollos-Nymo-s
